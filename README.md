@@ -4,11 +4,12 @@
 
 Hi' I know you are all looking at my profile
 
-**Ovinayak/Ovinayak** is a ✨
- _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Ovinayak/Ovinayak*
 
-I am vinayak. I am learning Full stack.  
+I am vinayak.Can you share some of your knowledge to me.
 
+You can join me..On Github
+ 
 - 🔭 I’m currently working on web development...
 
 - 🌱 I’m currently learning full stack...
