@@ -1,5 +1,5 @@
-😋😋😋😋😋😋😋😋😋😋😋😋😋😋😋😋😋
-(❁´◡`❁)(
+     😋😋 Hi'Vinayak 😋😋
+(🤫´◡`🤫)This vinayak is different and very amazing (🤫´◡`🤫)
 ## Hi there 👋
 **Ovinayak/Ovinayak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 I am vinayak. I am learning Full stack.  
