@@ -1,6 +1,6 @@
      😋😋 Hi'O se Vinayak 😋😋
 
-(´◡`)This vinayak is different and very amazing (´◡`)
+(´◡`) This vinayak is different and very amazing  (´◡`)
 
 Hi' I know you are all looking at my profile
 
