@@ -10,21 +10,21 @@ I am vinayak.Can you share some of your knowledge to me.
 
 You can join me..On Github
  
-- 🔭 I’m currently working on web development...
+- 🔭 I’m currently working on.. web development...
 
-- 🌱 I’m currently learning full stack...
+- 🌱 I’m currently learning ..full stack
 
-- 👯 I’m looking to collaborate on social citizen...
+- 👯 I’m looking to collaborate on.. social citizen
 
-- 🤔 I’m looking for help with web developer expert...
+- 🤔 I’m looking for help with ..web developer expert
 
-- 💬 Ask me about Coding ...
+- 💬 Ask me about ..Coding 
 
-- 📫 How to reach me: on social media 
+- 📫 How to reach me: ..on social media 
 
-- 😄 Pronouns: Hi,would you like to know about me ...
+- 😄 Pronouns: Hi,would you like to know about me 
 
-- ⚡ Fun fact: Do you also use Github...
+- ⚡ Fun fact: Do you also use Github
 -->
 
 -->Thank You 
